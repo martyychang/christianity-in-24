@@ -9,7 +9,7 @@ But God promises an afterlife. To be clear, God tells us that your soul will liv
 
 Luckily for us, Jesus came to earth and let himself be horribly tortured, humiliated and nailed to a wooden cross, so that you and I may know that we can be saved on that final day of judgment. When we come up short, Jesus will step in to save us. Not because we deserve it, for we will be saved by grace, not by merit.
 
-Does this mean everyone will be saved? No. By faith you will be saved. Since your salvation hinges on a single word, "faith", the word bears some explanation.
+Does this mean everyone will be saved? No. By faith you will be saved. Since your salvation hinges on a single word, "faith", the word bears some explanation, 
 
 In [the Parable of the Sower][1], Jesus explains the four stages of faith. Below are the stages and a few examples of what people at each stage may say, along with the expected verdict on the final day of judgment.
 
@@ -18,7 +18,7 @@ In [the Parable of the Sower][1], Jesus explains the four stages of faith. Below
 * **Among thorns**. "God is great. Heaven sounds cool. But these responsibilities are too heavy. My worldly comforts are too good to give up." Death verdict.
 * **On good soil**. "God is great. Heaven is real. Though I will stumble and fall, I know all I have is God's, and I gladly accept what I must do." _Life_ verdict.
 
-To figure out whether someone's (including yourself) is on good soil, try a few simple questions.
+To figure out whether someone (including yourself) is spiritually stuck among thorns, try a few simple questions.
 
 * Are you saving for retirement? See [Acts 5:1-11][2].
 * Do you avoid talking honestly about your income and expenses? See [Acts 5:1-11][2].
@@ -27,7 +27,9 @@ To figure out whether someone's (including yourself) is on good soil, try a few 
 
 Basically, if there's any topic or subject you're not willing to examine as it may reveal a conflict with doing the will of God, you're probably stuck among thorns. And if you're offended by this statement, that's probably further objective proof of where you are in your faith.
 
-I'm sorry if this sounds harsh (it's harsh to me as well, even as I write this), but there's hope for us still. We don't all have to become well known servant leaders like [Mother Teresa][5] or [Mahatma Ghandi][6], but simply _working_ earnestly to change your answers to questions like those above is a great place to start. And for most of us, having a community of believers who share similar struggles but also similar desires to rise above those struggles would go a long way.
+I'm sorry if this sounds harsh. It's harsh to me as well, even as I write this, but it's the truth. God sees through lip service ([James 2:14-17][8]), and there's no place for hypocrites in heaven ([Matthew 7:21-23][9]).
+
+Still, there is hope for us! We don't all have to become well known servant leaders like [Mother Teresa][5] or [Mahatma Ghandi][6], but simply _working_ earnestly to change your answers to questions like those above is a great place to start. And for most of us, having a community of believers who share similar struggles but also similar desires to rise above those struggles would go a long way.
 
 Let's talk more about community in another chapter, but as a quick suggestion you could start with the [_Christianity in 24 Hours_ repo on GitHub][7].
 
@@ -38,3 +40,5 @@ Let's talk more about community in another chapter, but as a quick suggestion yo
 [5]: https://www.biography.com/people/mother-teresa-9504160
 [6]: https://www.biography.com/people/mahatma-gandhi-9305898
 [7]: https://github.com/martyychang/christianity-in-24
+[8]: https://www.esv.org/James+2/
+[9]: https://www.esv.org/Matthew+7/
