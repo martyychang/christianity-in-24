@@ -21,8 +21,8 @@ In [the Parable of the Sower][1], Jesus explains the four stages of faith. Below
 To figure out whether someone's (including yourself) is on good soil, try a few simple questions.
 
 * Are you saving for retirement? See [Acts 5:1-11][2].
+* Do you avoid talking honestly about your income and expenses? See [Acts 5:1-11][2].
 * Do you work in the financial services _industry_ (loans, insurance, securities, etc.)? See [Matthew 21:12-13][3].
-* Do you avoid talking honestly about your income and expenses?
 * Do you prioritize the _wants_ of yourself and your family (i.e., parents, siblings, spouse, children) first and foremost, putting the _needs_ of your Christian brothers and sisters at a distant second? See [Matthew 12:46-50][4].
 
 Basically, if there's any topic or subject you're not willing to examine as it may reveal a conflict with doing the will of God, you're probably stuck among thorns. And if you're offended by this statement, that's probably further objective proof of where you are in your faith.
