@@ -5,7 +5,7 @@ A: Jesus saves the faithful. So just be faithful to God.
 
 We're all going to die one day. Morbid, perhaps, or just real. Death means our physical bodies are going to fail, our hearts will stop, our neurons will stop firing, and life as we know it will come to an end.
 
-But God promises an afterlife. To be clear, God tells is that your soul will live on, heading toward a final judgment at which point you will be either granted eternal life (entry into heaven) or condemned to eternal death (no heaven for you). The only problem is that standard of conduct required for entry is high, unattainable high. So high, in fact, that you and I have already f***ed up.
+But God promises an afterlife. To be clear, God tells us that your soul will live on, heading toward a final judgment at which point you will be either granted eternal life (entry into heaven) or condemned to eternal death (no heaven for you). The only problem is that standard of conduct required for entry is high, unattainable high. So high, in fact, that you and I have already f***ed up.
 
 Luckily for us, Jesus came to earth and let himself be horribly tortured, humiliated and nailed to a wooden cross, so that you and I may know that we can be saved on that final day of judgment. When we come up short, Jesus will step in to save us. Not because we deserve it, for we will be saved by grace, not by merit.
 
