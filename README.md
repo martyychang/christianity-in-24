@@ -17,7 +17,8 @@ Yes, the Bible—sometimes called the "word of God"—is extremely verbose and a
 
 Readers, ask your question or (respectfully) challenge existing content by creating an issue on [the Issues tab][4].
 
-Writers, [create pull requests][5]!
+Writers, [create pull requests][5] following [Leanpub conventions][6]!
 
 [4]: https://guides.github.com/features/issues/
 [5]: https://opensource.guide/how-to-contribute/
+[6]: https://leanpub.com/help/getting_started_sync_github
