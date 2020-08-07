@@ -6,8 +6,8 @@ Faith in God is also widely misunderstood. “God works in mysterious ways” an
 
 As a result, faith in God is overwhelmingly misused. Some make personal fortunes out of spreading the prosperity gospel. Others excuse their own bad behavior while condemning adversaries for doing the same. None of these misguided or intentionally twisted expressions of faith actually bring anyone closer to salvation.
 
-This book exists to explain what true faith in God entails, over 24 chapters you can read in under 1 hour each. You will learn to distinguish a true believer from a cultural believer, and you will learn the truth about our mission along with your power to influence the outcome.
+This book exists to explain what faith in God really means, over 24 chapters you can read in under 1 hour each. You will learn to distinguish a true believer from a cultural believer, and you will learn the reality of our mission along with your power to influence the outcome.
 
-Once you’ve read this book, go read the Bible for yourself, from cover to cover, and see if you reach the same conclusions. Many people will tell you the Bible is too difficult for a mere human like you to understand. Those people are quite frankly insulting your intelligence, and they are scared of the responsibilities that come with true faith.
+Once you’ve read this book, go read the Bible for yourself, from cover to cover, and see whether you reach the same conclusions. Many people will tell you the Bible is too difficult for a mere human like you to understand. Those people are quite frankly insulting your intelligence, and they are scared of the responsibilities that come with the inconvenient truth.
 
 Like Neo meeting Morpheus for the first time, you can choose now to take the blue pill and toss this book in the trash. But you’re game to try the red pill, read on.
