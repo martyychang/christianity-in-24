@@ -8,7 +8,7 @@ and real feedback comes in from readers.
 
 | # | Title | Status | Summary |
 |---|-------|--------|---------|
-| 1 | God | Planned | Who is God, and what does He want? |
+| 1 | God | ✅ Draft | Who is God, and what does He want? |
 | 2 | The Bible | Planned | What it is, what it isn't, and how to read it |
 | 3 | Sin | Planned | Why we all fall short |
 | 4 | Saved | ✅ Draft | Jesus and the gift of grace |
@@ -33,7 +33,7 @@ and real feedback comes in from readers.
 | 13 | Love God, Love Your Neighbor | Planned | The two commandments |
 | 14 | Prayer | Planned | How to talk to God (and listen) |
 | 15 | Community | Planned | The church as it should be |
-| 16 | Giving | Planned | Your money, your time, your comfort |
+| 16 | Giving | ✅ Draft | Your money, your time, your comfort |
 | 17 | Suffering | Planned | Why bad things happen and what God promises |
 | 18 | Forgiveness | Planned | Receiving it and giving it |
 
