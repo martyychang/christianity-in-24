@@ -23,7 +23,7 @@ The "tithe" — giving 10% of your income to the church — comes from the Old T
 
 Here's what most sermons leave out: the tithe was essentially a tax. It funded the Levitical priests (who had no land of their own), supported the poor, and maintained the temple. It made sense for a theocratic society where the church *was* the government.
 
-You don't live in that society.
+You don't live in that society. If you're reading this in North America or Western Europe, you live in a society where the government collects taxes, funds social programs (however imperfectly), and separates church from state. The church is no longer the government. So why is it still taxing you like one?
 
 The New Testament doesn't prescribe a percentage. Not 10%, not 5%, not any number. What it does say is far more demanding:
 
@@ -36,9 +36,11 @@ But don't mistake the absence of a percentage for permission to be stingy. Paul 
 
 ## More than money
 
-The outline for this chapter says "Your money, your time, your comfort." That last one is the killer.
+Money is the easy part. And that's the problem.
 
-Most people who tithe faithfully would rather write a check than actually change how they live. Money is the easy part. You budget 10%, automate the transfer, and move on with your life feeling righteous. But giving in the way God actually cares about means examining everything you're holding onto.
+Most people who tithe faithfully would rather write a check than actually change how they live. You budget a percentage, automate the transfer, and move on feeling righteous. But here's the thing: 10% of a teacher's salary is rent money. Ten percent of Jeff Bezos's net worth is the GDP of a small nation. A flat percentage treats those two situations as morally equivalent, and they're not. The widow who drops two copper coins into the offering is giving more than the billionaire who writes a seven-figure check from his investment returns — and Jesus said exactly that ([Mark 12:41-44][8]).
+
+Giving in the way God actually cares about means examining everything you're holding onto — not just your bank account.
 
 Are you hoarding your time? Working seventy hours a week to build wealth for your family while your neighbor can't afford groceries?
 
@@ -53,7 +55,7 @@ Jesus is not speaking in metaphor here. He is telling you, plainly, to stop accu
 
 ## The early church got this right
 
-Before Christianity became an institution with budgets and building funds, it was a movement. And the early believers shared everything.
+Before Christianity became an institution with budgets and building funds, it was a movement. And the first believers took care of each other in a way that would make most modern congregations uncomfortable.
 
 > And all who believed were together and had all things in common. And they were selling their possessions and belongings and distributing the proceeds to all, as any had need.
 — [Acts 2:44-45 ESV][5]
@@ -79,6 +81,7 @@ Every time you choose generosity over accumulation, you're casting a vote for th
 This means giving isn't an obligation to a church. It's an investment in humanity's collective success. Maybe that looks like tithing to your local congregation. Maybe it looks like funding clean water in a village you'll never visit. Maybe it looks like quitting a lucrative job to do work that actually matters. The form doesn't matter. The heart does.
 
 > For where your treasure is, there your heart will be also.
+— [Matthew 6:21 ESV][4]
 
 Jesus said it once. It bears repeating.
 
@@ -97,3 +100,4 @@ The tithe was never the point. The point is whether you're willing to hold your 
 [5]: https://www.esv.org/Acts+2/
 [6]: https://www.esv.org/Acts+4/
 [7]: https://www.esv.org/Acts+5/
+[8]: https://www.esv.org/Mark+12/
