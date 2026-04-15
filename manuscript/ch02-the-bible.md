@@ -18,7 +18,7 @@ The Bible is a library. Sixty-six books, written by roughly forty authors, acros
 > All Scripture is breathed out by God and profitable for teaching, for reproof, for correction, and for training in righteousness.
 — [2 Timothy 3:16 ESV][1]
 
-"Breathed out by God" does not mean God dictated it word for word like a CEO sending a memo. The authors of the Bible were real people with real personalities, writing in specific historical contexts for specific audiences. Paul's letters sound nothing like the Psalms. The Gospel of John reads nothing like Leviticus. That's not a flaw — it's the point. God worked *through* human beings, not around them.
+"Breathed out by God" does not mean God dictated it word for word like a CEO sending a memo. The authors of the Bible were real people with real personalities, writing in specific historical contexts for specific audiences. Paul's letters sound nothing like the Psalms. The Gospel of John reads nothing like Leviticus. That's not a flaw — it's the point. The Bible's authors each brought their own voice, their own context, their own humanity to the page, and the result is richer for it.
 
 This matters because the moment you treat the Bible as a flat document where every sentence carries identical weight and context doesn't matter, you end up with absurdities. You end up arguing that wearing mixed fabrics is a sin ([Leviticus 19:19][2]) while ignoring that Jesus declared all foods clean ([Mark 7:19][3]). You end up using a verse from Leviticus to condemn someone while eating shrimp for dinner.
 
