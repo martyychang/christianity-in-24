@@ -40,9 +40,9 @@ Here's a better way.
 
 **Know who's talking, and to whom.** When God tells Joshua to conquer Jericho, that is not a standing order for you to go take what you want. When Jesus tells a rich young man to sell everything he owns ([Mark 10:21][5]), he's addressing a specific person's specific idol. When Paul tells women to be silent in church ([1 Corinthians 14:34][6]), he's writing to a specific congregation dealing with specific disruptions in a specific cultural context.
 
-Does that mean those passages have nothing to say to you? No. But it means you have to think about *why* something was said before you decide *what* it means for your life. That requires effort. It requires humility. And it requires admitting you might have been reading it wrong.
+Does that mean those passages have nothing to say to you? No. But it means you have to think about *why* something was said before you decide *what* it means for your life. That requires effort. It requires humility. And it requires admitting you might have been missing the forest for the trees.
 
-**Let Scripture interpret Scripture.** If your reading of one verse contradicts the clear message of dozens of others, you're probably misreading the one. The Bible has tensions — places where different authors emphasize different things — but it doesn't contradict itself on the big stuff. Love God. Love people. Act justly. Show mercy. Walk humbly. If your interpretation leads you away from those themes, go back and read again.
+**Read with the mission in mind.** Hour 1 introduced the mission: humanity proving we can overcome our fears and vices to sustainably manage the earth. That mission is your north star when reading the Bible. God creates, destroys, tests, forgives, and ultimately steps back — and the thread running through all of it is whether humanity will rise to the challenge. When you encounter a passage that confuses you — God commanding violence, or seemingly contradicting something said elsewhere — ask yourself what it reveals about the mission. Read the Bible in whole, apply critical thinking, and use the mission as your lens. If your interpretation of any single passage leads you away from love, justice, mercy, and humility, go back and read again.
 
 **Read the parts that make you uncomfortable.** This is not optional. If you only read the verses that confirm what you already believe, you're not reading the Bible — you're reading yourself. The passages that challenge you, offend you, or confuse you are exactly the ones you need to wrestle with.
 
@@ -53,11 +53,11 @@ A sword cuts. If the Bible has never cut you — never made you question your ow
 
 ## Why this matters for the rest of the book
 
-Every chapter in this book points back to Scripture. Not because we're blindly deferring to authority, but because the Bible is the primary source. Everything else — sermons, theology books, podcasts, this book — is commentary. And commentary, no matter how well-intentioned, is filtered through human limitations.
-
 The preface of this book told you to read the Bible for yourself after you finish here. That wasn't a suggestion. It was the whole point. This book is a map. The Bible is the territory. And maps are useful, but they're no substitute for walking the ground yourself.
 
-If you disagree with something in this book, good. Open the Bible and check. If a pastor tells you something that sounds off, open the Bible and check. If a friend quotes a verse to win an argument, open the Bible and read the three chapters around it.
+If you disagree with something in this book, good. Go back to the mission and think critically about whether the disagreement holds up. If a pastor tells you something that sounds off, measure it against the mission. If a friend quotes a verse to win an argument, ask whether that interpretation serves the mission or just serves their point.
+
+The mission is grounded in the Bible. It is the product of reading the whole thing, thinking hard about why it exists, and arriving at an understanding of what God set in motion and what humanity is supposed to do about it. You can question the mission — that is fine, and it is encouraged. But question it honestly, with the full weight of Scripture behind you, not with a single verse pulled from a Google search.
 
 God gave you a mind. Use it.
 
