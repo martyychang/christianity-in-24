@@ -5,7 +5,7 @@ A: Yes. But that doesn't mean what most people think it means.
 
 ## Commentary
 
-You've made it to Hour 2, which means you're still here. Good. Because this chapter is about the book that the rest of this book won't stop quoting, and if you don't understand what you're holding, everything after this will land wrong.
+You've made it to Hour 2, which means you're still here. Good. Because this chapter is about the book that the rest of this book won't stop quoting, and you need to understand what you're holding so that everything after this lands the way it should.
 
 The Bible is not a rulebook. It's not an instruction manual. It's not a single document written by one author with one message. And it is absolutely not a weapon to be aimed at people you disagree with.
 
@@ -13,7 +13,7 @@ So what is it?
 
 ## What the Bible actually is
 
-The Bible is a library. Sixty-six books, written by roughly forty authors, across approximately 1,500 years. It contains history, poetry, law, prophecy, letters, biography, and apocalyptic vision. Some of it is literal. Some of it is metaphorical. Some of it is both at the same time, and the authors expected you to be smart enough to tell the difference.
+The Bible is a library. Sixty-six books, written by roughly forty authors, across approximately 1,500 years. It contains history, poetry, law, prophecy, letters, biography, and apocalyptic vision. Some of it is literal. Some of it is metaphorical. Some of it is both at the same time, and God expects you to exercise the critical thinking to discern the difference.
 
 > All Scripture is breathed out by God and profitable for teaching, for reproof, for correction, and for training in righteousness.
 — [2 Timothy 3:16 ESV][1]
