@@ -63,14 +63,14 @@ Here is where everything connects.
 
 Hour 1 established the mission: humanity proving we can overcome our fears and vices. Hour 3 established that we all fail at this — we reliably choose self over others. Hour 4 established that Jesus bridges the gap between our failure and God's standard.
 
-Faith is the mechanism that makes all of it operational. Without faith, the mission is just an idea. Without faith, knowing you're a sinner is just guilt. Without faith, the sacrifice of Jesus is just a historical event. Faith is the thing that takes knowledge and turns it into action.
+Could the mission succeed without faith? In theory, yes — if every human chose love over self, the verdict would be the same regardless of what anyone believed about God. But the odds are terrible. Faith is what gives you the edge. Faith in eternal life means you can stop clawing for one more day and start giving your days away. It frees you from the need to accumulate, to protect, to hedge — because the material stakes of this life are not the final stakes. Faith lets you look at billions of strangers and see one family, because that is how God sees us. Without that edge, sustainable selflessness is nearly impossible. With it, you can endure, sacrifice, and even give your life — not out of recklessness, but out of the quiet confidence that this world is not all there is.
 
 When you choose to give instead of hoard, that is faith in action. When you forgive someone who doesn't deserve it, that is faith in action. When you tell the truth even though the lie would be easier, that is faith in action. When you keep working toward the mission on days when it seems hopeless, when the news is terrible, when people around you have given up — that is faith.
 
 > Now faith is the assurance of things hoped for, the conviction of things not seen.
 — [Hebrews 11:1 ESV][7]
 
-The mission isn't finished. The verdict isn't in. You can't see whether humanity will pass the test. Faith is choosing to act as though it matters anyway — as though your individual choices, your individual acts of love and justice, actually add up to something.
+The mission isn't finished. The verdict isn't in. You can't see whether humanity will pass the test. Faith is choosing to act because you know it matters — because the God who designed this test is rooting for you to pass it, and your individual choices, your individual acts of love and justice, actually add up to something.
 
 They do. That's the whole point.
 
