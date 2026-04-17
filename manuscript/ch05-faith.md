@@ -25,32 +25,9 @@ That is not what the Bible describes.
 > Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but much more in my absence, work out your salvation with fear and trembling.
 — [Philippians 2:12 ESV][2]
 
-"Work out your salvation." Not "rest on your salvation." Not "coast on the prayer you said at summer camp when you were fourteen." Paul is telling the Philippians — people who are already believers — that faith is an active, ongoing process. Something you work at. Something that requires effort and, apparently, trembling.
+"Work out your salvation." Not "rest on your salvation." Not "coast on the prayer you said at summer camp when you were fourteen." Paul is telling the Philippians — people who are already believers — that faith is an active, ongoing process. Something you work at. Something that demands enough of you to make you tremble — not from fear of God, but from the weight of knowing that the mission depends on your choices and you might not be equal to it.
 
 Faith is not a moment. It is a direction. Every morning you wake up and choose whether to orient your life toward the mission or toward yourself. Some days you choose well. Some days you don't. The point is not perfection — the point is direction. Are you walking toward the mission or away from it?
-
-## Faith stripped bare
-
-If you want to see what faith looks like without the clutter of religious systems, look at the thief on the cross.
-
-He had no baptism. No church membership. No track record of good works. No time to prove anything. He was a criminal, dying next to Jesus, and he said this:
-
-> "Jesus, remember me when you come into your kingdom."
-— [Luke 23:42 ESV][3]
-
-And Jesus replied:
-
-> "Truly, I say to you, today you will be with me in paradise."
-— [Luke 23:43 ESV][3]
-
-That is faith at its most essential. No ritual. No system. No credentials. Just a man recognizing who Jesus is and acting on it — with the only thing he had left, which was his words.
-
-The early church fought bitterly over this exact question: does faith need a religious system to work? When Gentiles — non-Jews who had never followed the Law of Moses — started coming to faith, the established believers pushed back. *They need to be circumcised first. They need to follow the dietary laws. They need the system.* Paul said no:
-
-> For we hold that one is justified by faith apart from works of the law.
-— [Romans 3:28 ESV][4]
-
-This does not contradict James. James says faith without works is dead. Paul says faith apart from works of the *law*. The difference matters. James is talking about actions — about whether your faith actually changes how you live. Paul is talking about religious systems — about whether keeping rules and performing rituals is what earns you standing with God. The answer to the first is yes, your faith must produce action. The answer to the second is no, your rituals do not earn you anything.
 
 ## What faith is not
 
@@ -59,14 +36,14 @@ This does not contradict James. James says faith without works is dead. Paul say
 Thomas refused to believe Jesus had risen until he could put his fingers in the nail marks. Jesus appeared and let him. But then he said something that matters more for us than it did for Thomas:
 
 > "Have you believed because you have seen me? Blessed are those who have not seen and yet have believed."
-— [John 20:29 ESV][5]
+— [John 20:29 ESV][3]
 
 That is us. We have not seen. We are the ones Jesus is talking about — the ones who must choose without proof.
 
 Doubt is not the opposite of faith. Doubt is part of it. A father brought his sick son to Jesus and said the most honest thing anyone has ever said about faith:
 
 > "I believe; help my unbelief!"
-— [Mark 9:24 ESV][6]
+— [Mark 9:24 ESV][4]
 
 That is what faith sounds like in practice — not confident certainty, but an honest plea from someone who wants to believe and knows he is falling short. Jesus healed the boy anyway.
 
@@ -74,11 +51,11 @@ The opposite of faith is not doubt. It is indifference — the decision that the
 
 **Faith is not magic thinking.** "If I just pray hard enough, God will heal my mother." "If I just have enough faith, God will bless my business." This is the prosperity gospel wearing a prayer request mask, and it is a lie. God is not a vending machine where faith is the currency.
 
-Faith does not guarantee outcomes. Paul's faith did not prevent him from being beaten, shipwrecked, imprisoned, and eventually executed. Stephen's faith did not prevent him from being stoned to death ([Acts 7:59][7]). The early church was scattered, persecuted, and killed — and they kept going.
+Faith does not guarantee outcomes. Paul's faith did not prevent him from being beaten, shipwrecked, imprisoned, and eventually executed. Stephen's faith did not prevent him from being stoned to death ([Acts 7:59][5]). The early church was scattered, persecuted, and killed — and they kept going.
 
 What faith does is sustain your commitment to the mission regardless of outcomes. It is the engine that keeps you choosing others over self when every instinct says stop.
 
-**Faith is not cultural identity.** Calling yourself a Christian is not faith. Going to church on Sunday is not faith. Posting Bible verses on social media is not faith. These can be expressions of faith, but they can just as easily be expressions of social conformity. The Pharisees did all of these things and Jesus called them whitewashed tombs — beautiful on the outside, full of dead bones on the inside ([Matthew 23:27][8]).
+**Faith is not cultural identity.** Calling yourself a Christian is not faith. Going to church on Sunday is not faith. Posting Bible verses on social media is not faith. These can be expressions of faith, but they can just as easily be expressions of social conformity. The Pharisees did all of these things and Jesus called them whitewashed tombs — beautiful on the outside, full of dead bones on the inside ([Matthew 23:27][6]).
 
 ## Faith and the mission
 
@@ -91,7 +68,7 @@ Faith is the mechanism that makes all of it operational. Without faith, the miss
 When you choose to give instead of hoard, that is faith in action. When you forgive someone who doesn't deserve it, that is faith in action. When you tell the truth even though the lie would be easier, that is faith in action. When you keep working toward the mission on days when it seems hopeless, when the news is terrible, when people around you have given up — that is faith.
 
 > Now faith is the assurance of things hoped for, the conviction of things not seen.
-— [Hebrews 11:1 ESV][9]
+— [Hebrews 11:1 ESV][7]
 
 The mission isn't finished. The verdict isn't in. You can't see whether humanity will pass the test. Faith is choosing to act as though it matters anyway — as though your individual choices, your individual acts of love and justice, actually add up to something.
 
@@ -105,10 +82,8 @@ They do. That's the whole point.
 
 [1]: https://www.esv.org/James+2/
 [2]: https://www.esv.org/Philippians+2/
-[3]: https://www.esv.org/Luke+23/
-[4]: https://www.esv.org/Romans+3/
-[5]: https://www.esv.org/John+20/
-[6]: https://www.esv.org/Mark+9/
-[7]: https://www.esv.org/Acts+7/
-[8]: https://www.esv.org/Matthew+23/
-[9]: https://www.esv.org/Hebrews+11/
+[3]: https://www.esv.org/John+20/
+[4]: https://www.esv.org/Mark+9/
+[5]: https://www.esv.org/Acts+7/
+[6]: https://www.esv.org/Matthew+23/
+[7]: https://www.esv.org/Hebrews+11/
