@@ -10,7 +10,7 @@ and real feedback comes in from readers.
 |---|-------|--------|---------|
 | 1 | God | ✅ Draft | Who is God, and what does He want? |
 | 2 | The Bible | ✅ Draft | What it is, what it isn't, and how to read it |
-| 3 | Sin | Planned | Why we all fall short |
+| 3 | Sin | ✅ Draft | Why we all fall short |
 | 4 | Saved | ✅ Draft | Jesus and the gift of grace |
 | 5 | Faith | Planned | What it actually means (vs. what people say it means) |
 | 6 | The Holy Spirit | Planned | God's presence in your life |
