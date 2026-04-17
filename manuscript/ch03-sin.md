@@ -74,7 +74,7 @@ You don't have to commit a crime to fail the mission. You just have to do nothin
 
 One of the most popular lies in modern culture is that morality is relative — that what's right for you might not be right for me, and who are we to judge? This sounds enlightened. It is actually a surrender.
 
-If morality is relative, then the mission doesn't exist. If there's no objective standard for how humans should treat each other, then there's nothing to prove and nothing at stake. The entire framework of Chapter 1 — God setting humanity a test, Satan betting we'll fail — collapses into meaninglessness.
+If morality is relative, then everything is permitted. Slavery was once considered acceptable by the people who profited from it. It took a war — and six hundred thousand dead — to establish that owning another human being is wrong regardless of what your culture tells you. If morality is truly relative, that war was fought over nothing more than a difference of opinion. The same logic applies to every atrocity in human history: if there's no objective standard, then there's no grounds to say any of it was wrong. Only that some people didn't like it.
 
 > Woe to those who call evil good and good evil, who put darkness for light and light for darkness, who put bitter for sweet and sweet for bitter!
 — [Isaiah 5:20 ESV][6]
@@ -85,7 +85,7 @@ Sin has an objective definition: choosing self over the mission God gave us. You
 
 ## What sin is not
 
-**Sin is not a tool for control.** If someone uses the concept of sin to shame you into compliance, to extract money from you, or to make you feel small so they can feel powerful — that is manipulation, and it is itself a sin. The purpose of understanding sin is self-examination, not other-examination.
+**Sin is not a tool for control.** If someone uses the concept of sin to shame you into compliance, to extract money from you, or to make you feel small so they can feel powerful — that is manipulation, and it is itself a sin. The purpose of understanding sin is self-examination, not cross-examination.
 
 **Sin is not about guilt.** Guilt without action is useless. Feeling bad about your choices while continuing to make them is not repentance — it's performance. The point of recognizing sin is to change direction, not to wallow.
 
@@ -102,7 +102,7 @@ Every sin — every choice of self over others, every act of indifference, every
 
 That is the weight of sin. Not that God is keeping score to punish you. Not that you're accumulating demerits against some heavenly credit rating. The weight is that the test is real, the stakes are real, and your choices matter.
 
-The good news is that the test isn't over. You're still choosing. And the next chapter is about what happens when you realize you can't pass this test on your own.
+The good news is that the test isn't over. You're still choosing. And while the tendency toward self is real, you are not alone in fighting it. The next chapter is about what it looks like when people stop trying to pass the test in isolation — and start carrying each other.
 
 ## Questions to sit with
 
