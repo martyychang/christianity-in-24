@@ -36,9 +36,11 @@ They ate. Not because they were hungry — the garden was full of food. Not beca
 > So when the woman saw that the tree was good for food, and that it was a delight to the eyes, and that the tree was to be desired to make one wise, she took of its fruit and ate, and she also gave some to her husband who was with her, and he ate.
 — [Genesis 3:6 ESV][3]
 
-This is the pattern that repeats across all of human history: God provides what we need, sets a boundary, and we cross it — not out of necessity but out of desire. We want more. We want control. We want to decide for ourselves what is good and what is evil, rather than trusting the framework we were given.
+This is the pattern that repeats across all of human history: God provides what we need, sets a boundary, and we cross it — not out of necessity but out of desire. We want more. We want control. We want what we want, and we take it without asking.
 
-That pattern is sin. And every one of us lives inside it.
+Notice what Eve *didn't* do. She didn't go to God and say, "Why this tree? Explain the rule. Help me understand." She didn't question the framework — she bypassed it. There is a world of difference between testing a framework honestly and discarding it because it's inconvenient. Honest inquiry is how faith matures. Taking what you want and rationalizing it afterward is how sin works.
+
+That pattern — desire dressed up as wisdom, self-interest disguised as seeking knowledge — is the one that repeats. And every one of us lives inside it.
 
 ## Why everyone sins
 
@@ -52,6 +54,8 @@ Not always. Not in every situation. But consistently enough that no honest perso
 — [Jeremiah 17:9 ESV][4]
 
 This verse is not God calling you broken. It is God being honest about the tendency you already know is there. You rationalize. You justify. You reframe selfish choices as practical ones. You compare yourself to people who are worse and call yourself good by comparison. Everyone does this. The prophet Jeremiah is telling you to stop pretending otherwise.
+
+But here is the other side of that same coin: God did not create you to fail. The capacity to choose self is also the capacity to choose others. Every time you tell the truth when a lie would be easier, every time you give when keeping would be comfortable, every time you show up when walking away would cost you nothing — that is the same free will, pointed in the right direction. The tendency toward self is real. So is the ability to override it. That is what makes the test meaningful.
 
 ## The sin nobody talks about
 
