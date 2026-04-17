@@ -26,6 +26,14 @@ and real feedback comes in from readers.
 | 11 | Jesus: The Death and Resurrection | Planned | Why it matters |
 | 12 | The Early Church | Planned | Acts, Paul, and the spread of the gospel |
 
+**Cross-cutting theme — Special treatment then vs. expectations now:** The OT narrative
+is full of God speaking directly to people, parting seas, sending plagues, and appearing
+in burning bushes. No one today should expect that. This distinction needs space somewhere
+in Part II — probably between the OT chapters (7–9) and the Jesus chapters (10–11), or
+woven into the Prophets chapter as a bridge. The question: why did God operate that way
+then, and what should believers expect now? This also connects back to Hour 5 (Faith),
+where we deliberately avoid OT characters as faith examples for the same reason.
+
 ## Part III — The Life (Hours 13–18)
 
 | # | Title | Status | Summary |
