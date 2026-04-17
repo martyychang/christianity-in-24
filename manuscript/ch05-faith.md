@@ -76,7 +76,7 @@ They do. That's the whole point.
 
 ## Questions to sit with
 
-* What is one thing you believe about God that you haven't actually acted on? What would change in your daily life if you started?
+* What would you do differently tomorrow if you truly believed the material stakes of this life are not the final stakes?
 * When was the last time your faith cost you something — comfort, money, reputation, relationships? If you can't think of an example, what does that tell you?
 * Do you treat faith as a decision you made once, or as a direction you're walking in every day? What's the difference in practice?
 
