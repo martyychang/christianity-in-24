@@ -12,7 +12,7 @@ and real feedback comes in from readers.
 | 2 | The Bible | ✅ Draft | What it is, what it isn't, and how to read it |
 | 3 | Sin | ✅ Draft | Why we all fall short |
 | 4 | Saved | ✅ Draft | Jesus and the gift of grace |
-| 5 | Faith | Planned | What it actually means (vs. what people say it means) |
+| 5 | Faith | ✅ Draft | What it actually means (vs. what people say it means) |
 | 6 | The Holy Spirit | Planned | God's presence in your life |
 
 ## Part II — The Story (Hours 7–12)
@@ -25,6 +25,14 @@ and real feedback comes in from readers.
 | 10 | Jesus: The Life | Planned | Who he was and what he did |
 | 11 | Jesus: The Death and Resurrection | Planned | Why it matters |
 | 12 | The Early Church | Planned | Acts, Paul, and the spread of the gospel |
+
+**Cross-cutting theme — Special treatment then vs. expectations now:** The OT narrative
+is full of God speaking directly to people, parting seas, sending plagues, and appearing
+in burning bushes. No one today should expect that. This distinction needs space somewhere
+in Part II — probably between the OT chapters (7–9) and the Jesus chapters (10–11), or
+woven into the Prophets chapter as a bridge. The question: why did God operate that way
+then, and what should believers expect now? This also connects back to Hour 5 (Faith),
+where we deliberately avoid OT characters as faith examples for the same reason.
 
 ## Part III — The Life (Hours 13–18)
 
