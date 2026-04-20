@@ -61,7 +61,7 @@ We have the complete Bible — sixty-six books recording everything God wanted h
 
 The early apostles had none of this. They needed the Spirit because they were building the plane while flying it. We have the plane. It's built. The instructions are in the seat-back pocket.
 
-This doesn't mean God abandoned us. It means God gave us everything we need and trusts us to use it. Go back to core tenet #1: God is the creator, not the puppeteer. The mission is ours to execute. God provided the tools — Scripture, the example of Jesus, the capacity to reason, and each other — and stepped back.
+This doesn't mean God abandoned us. It means God gave us everything we need and trusts us to use it. Core tenet #1: God is the creator, not the puppeteer. The mission is ours to execute. God provided the tools — Scripture, the example of Jesus, the capacity to reason, and each other — and stepped back.
 
 That is not abandonment. That is the test.
 
@@ -71,7 +71,7 @@ When someone says "the Holy Spirit led me to do this," ask yourself what they're
 
 This isn't faith. It's confirmation bias wearing a religious costume.
 
-And it creates real problems. When people believe God is personally directing their decisions, they stop taking full responsibility for those decisions. "God led me here" is a way of saying "this isn't really my choice" — and that undermines the very thing faith is supposed to be. Hour 5 established that faith is a choice you keep making. If God is steering you through the Spirit, it's not really your choice anymore. And if it's not your choice, the test of free will is meaningless.
+And it creates real problems. When people believe God is personally directing their decisions, they stop taking full responsibility for those decisions. "God led me here" is a way of saying "this isn't really my choice" — and that undermines the very thing faith is supposed to be. Hour 5 established that faith is a choice you keep making. The test of free will is meaningful precisely because the choices are ours. Faith matters because we are the ones making it — freely, without a hand on the wheel.
 
 There is also a darker version of this. Throughout history, people have claimed divine guidance to justify conquest, slavery, abuse, and every form of cruelty imaginable. "God told me" is the most dangerous sentence in any language, because it places the speaker's decisions beyond challenge. If God said it, who are you to argue?
 
@@ -99,7 +99,7 @@ The Spirit's legacy is not an ongoing whisper in your ear. It is the standard it
 
 ## The Holy Spirit and the mission
 
-Go back to Hour 1. The mission is humanity proving we can overcome our fears and vices to sustainably manage the earth. Satan's bet is that we'll fail. God is watching.
+Hour 1 established the mission: humanity proving we can overcome our fears and vices to sustainably manage the earth. Satan's bet is that we'll fail. God is watching.
 
 If God is actively directing individuals through the Spirit, the test is rigged. You cannot simultaneously claim that humans have free will and that God is whispering instructions in their ears. Either the choices are ours or they aren't. This book says they are — fully, completely, and without a safety net.
 
