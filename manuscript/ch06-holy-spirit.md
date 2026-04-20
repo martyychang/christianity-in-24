@@ -71,7 +71,7 @@ When someone says "the Holy Spirit led me to do this," ask yourself what they're
 
 This isn't faith. It's confirmation bias wearing a religious costume.
 
-And it creates real problems. When people believe God is personally directing their decisions, they stop taking full responsibility for those decisions. "God led me here" is a way of saying "this isn't really my choice" — and that undermines the very thing faith is supposed to be. Hour 5 established that faith is a choice you keep making. The test of free will is meaningful precisely because the choices are ours. Faith matters because we are the ones making it — freely, without a hand on the wheel.
+And it creates real problems. When people believe God is personally directing their decisions, they stop taking full responsibility for those decisions. "God led me here" is a way of saying "this isn't really my choice" — and that undermines the very thing faith is supposed to be. Hour 5 established that faith is a choice you keep making. The test of free will is meaningful precisely because the choices are ours.
 
 There is also a darker version of this. Throughout history, people have claimed divine guidance to justify conquest, slavery, abuse, and every form of cruelty imaginable. "God told me" is the most dangerous sentence in any language, because it places the speaker's decisions beyond challenge. If God said it, who are you to argue?
 
