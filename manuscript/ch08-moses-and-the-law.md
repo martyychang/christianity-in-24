@@ -1,7 +1,7 @@
 # Hour 8: Moses and the Law
 
 Q: Why did God give rules He knew people would break?
-A: Because you can't choose the mission if no one has shown you what the mission looks like.
+A: Because early humanity didn't know how to conduct themselves. Rules are how you teach children — and humanity was a child. You internalize the rules, you grow up, and eventually you don't need someone handing them to you anymore. Humanity is in adulthood now.
 
 ## Commentary
 
@@ -68,7 +68,7 @@ Because the Law is not the cure. The Law is the diagnosis.
 
 Without the Law, sin is vague. It's "choosing self over mission" — true, but abstract. The Law makes it specific. Don't murder. Don't steal. Don't covet what belongs to someone else. Don't lie under oath. Honor your parents. Rest one day in seven. Love the foreigner living among you as yourself ([Leviticus 19:34][9]).
 
-The Law takes the mission and translates it into behavior. It gives Israel — and through them, eventually, the world — a concrete picture of what faithful living looks like. Not because following every rule earns God's approval, but because you can't choose the right path if no one has shown you what the path looks like.
+The Law takes the mission and translates it into behavior. It gives Israel — and through them, eventually, the world — a concrete picture of what faithful living looks like. Think of it the way a parent raises a child: you start with explicit rules because the child doesn't yet have the judgment to navigate on their own. The rules aren't the goal. Internalization is the goal. The child who grows up and does the right thing without being told — that's the success case. The Law is parenting on a civilizational scale.
 
 Paul understood this:
 
