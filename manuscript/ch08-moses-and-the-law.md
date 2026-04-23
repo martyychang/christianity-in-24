@@ -75,7 +75,7 @@ Paul understood this:
 > Is the law then contrary to the promises of God? Certainly not! For if a law had been given that could give life, then righteousness would indeed be by the law. But the Scripture imprisoned everything under sin, so that the promise by faith in Jesus Christ might be given to those who believe.
 — [Galatians 3:21-22 ESV][10]
 
-The Law was never meant to save anyone. It was meant to show you why you need saving. It holds up a mirror and says: here is the standard, and here is how far you fall short. That gap — between what the Law demands and what you can deliver — is exactly where grace enters the story. But grace is a few chapters away. Israel had to live under the Law first, long enough to learn the lesson.
+The Law was never meant to save anyone. It was meant to show you why you need saving. It holds up a mirror and says: here is the standard, and here is how far you fall short. That gap — between what the Law demands and what you can deliver — is exactly where grace enters the story. But grace is a few chapters away. Humanity wasn't ready for it yet. You don't hand a child the keys and say "figure it out." You give them rules, let them fail, and wait until they're mature enough to understand why the rules mattered in the first place.
 
 ## The golden calf
 
@@ -134,7 +134,9 @@ The plagues didn't make Pharaoh a believer. The parted sea didn't prevent the go
 
 This is what the Law teaches, not through its content but through Israel's failure to keep it: external rules and spectacular signs cannot change what is inside a person. You can show someone the path, part the ocean in front of them, feed them from the sky — and they will still choose the golden calf if that's what their heart wants.
 
-The Law was never the solution. It was the setup. It was the four-hundred-year demonstration that humanity needs something the Law cannot provide. That something is still a few chapters away.
+Return to the analogy from earlier in this chapter. The Law is how a parent raises a child — explicit rules, clear consequences, constant supervision. The wilderness is adolescence — testing boundaries, failing, learning the hard way that the rules existed for a reason. Every rebellion, every golden calf, every "let's go back to Egypt" is the growing pain of a species that hasn't matured enough to carry the mission on its own.
+
+The Law was never the solution. It was the setup. It was the necessary stage of development — the long, painful education that would eventually make adulthood possible. And when adulthood arrives, it will have a name. That's still a few chapters away.
 
 ## Questions to sit with
 
