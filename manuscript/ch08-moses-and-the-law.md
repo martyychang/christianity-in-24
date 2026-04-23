@@ -27,7 +27,7 @@ Moses is eighty years old. He's a fugitive — he killed an Egyptian overseer de
 
 God doesn't accept any of it. The mission doesn't wait for you to feel ready. Moses goes.
 
-This is the same pattern as Abraham — a person who didn't choose the assignment, didn't feel qualified for it, and went anyway. Faith is not confidence. It's obedience despite the absence of confidence.
+This is the same pattern as Abraham — a person who didn't choose the assignment, didn't feel qualified for it, and went anyway. Faith is not confidence. It's choosing to move forward when every instinct says you're not ready.
 
 ## The Exodus
 
