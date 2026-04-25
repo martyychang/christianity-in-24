@@ -7,22 +7,20 @@ A: The person who showed humanity what faithfulness looks like — lived, not le
 
 Four hundred years of silence. No prophets. No parted seas. No voice from the mountain. For four centuries after Malachi, the covenant people waited with nothing but the Law, the writings, and the memory of a God who used to speak.
 
-Then this:
+Then a child was born to a teenage girl in an occupied country, laid in a feeding trough because there was no room anywhere else.
 
-> And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son from the Father, full of grace and truth.
-— [John 1:14 ESV][1]
-
-God entered creation. Not as a king, not as a conqueror, not as a thundering presence on a mountaintop. As a baby. Born to a teenage girl in an occupied country, laid in a feeding trough because there was no room anywhere else.
-
-If the Old Testament is the story of God's patience running out and starting over — floods, exile, silence — then the New Testament begins with God's patience taking a different form. No more rules from the outside. No more interventions that force the issue. This time, God would show what faithfulness looks like from the inside — by living it.
+No burning bush. No pillar of fire. No voice thundering from a mountain. The most significant figure in human history arrived the way most humans do — helpless, dependent, unnoticed by anyone who mattered. If the Old Testament taught anything, it was that God's chosen instruments don't look the part. Jesus took that principle further than anyone expected.
 
 ## The arrival
 
 Jesus was born in Bethlehem during the reign of Caesar Augustus. He grew up in Nazareth, a town so insignificant that when one of his future disciples heard where he was from, the response was: "Can anything good come out of Nazareth?" ([John 1:46][2]).
 
-He was a carpenter's son. He worked with his hands. He didn't emerge from a palace or a priestly family. The centuries of prophecy — Isaiah's suffering servant, Jeremiah's new covenant, the whispered hopes of a deliverer — pointed to this ordinary man from an unremarkable town.
+He was a carpenter's son. He worked with his hands. He didn't emerge from a palace or a priestly family. But Jesus was not ordinary — and he knew it. He could heal the sick, give sight to the blind, and feed thousands from a handful of bread and fish. These were gifts not everyone had, and Jesus understood where they came from:
 
-This matters for the framework of this book. If God's purpose was to show humanity what faithfulness looks like, the demonstration had to come from within human experience — not from above it. A king could command. A general could conquer. A priest could perform rituals. None of that would prove that an ordinary person could carry the mission. Jesus had to be ordinary. The extraordinary part was what he did with it.
+> The Spirit of the Lord is upon me, because he has anointed me to proclaim good news to the poor. He has sent me to proclaim liberty to the captives and recovering of sight to the blind, to set at liberty those who are oppressed.
+— [Luke 4:18 ESV][1]
+
+Those are Jesus's own words, reading Isaiah in his hometown synagogue — claiming the prophetic mantle. Anointed and sent, like Moses, like Elijah. The centuries of prophecy pointed to this man. But the distinction that matters for the whole arc of this book: unlike every prophet before him, Jesus would carry the mission all the way without faltering. Moses struck the rock. David fell with Bathsheba. Solomon turned to other gods. Jesus held.
 
 ## What he taught
 
@@ -94,7 +92,7 @@ He did not establish an earthly kingdom. Israel expected a messiah who would ove
 > Jesus answered, "My kingdom is not of this world. If my kingdom were of this world, my servants would have been fighting, that I might not be handed over to the Jews. But my kingdom is not from the world."
 — [John 18:36 ESV][14]
 
-He did not use his power to protect himself. He healed others but accepted his own suffering. He could have called twelve legions of angels ([Matthew 26:53][15]) but chose the cross instead.
+He did not use his gifts to protect himself. He healed others but accepted his own suffering. When arrested, he told his disciples he could have asked God for twelve legions of angels ([Matthew 26:53][15]) — but chose the cross instead.
 
 He did not condemn the people the religious leaders condemned. He went to the tax collectors, the prostitutes, the unclean, the marginalized — the people religion had failed — and he ate with them, talked with them, healed them, and told them they mattered.
 
@@ -106,7 +104,7 @@ The Law showed what faithfulness looks like on paper. Jesus showed what it looks
 
 Every chapter of this book converges here. The mission from Hour 1 — humanity proving it can get this right. The sin from Hour 3 — choosing self over others. The faith from Hour 5 — a direction, not a moment. The Law from Hour 8 — childhood rules that Jesus translated into adult character. The prophets from Hour 9 — truth-tellers who pointed beyond themselves to someone who hadn't arrived yet.
 
-He arrived. And he didn't come with rules. He came with a life. Three years of showing what it looks like to choose the mission every single day — to love the unlovable, to confront the powerful, to welcome the outcast, to forgive the unforgivable — knowing that it would cost him everything.
+He arrived. A prophet with gifts no one else had — and the conviction to use them without flinching. Three years of showing what it looks like to choose the mission every single day — to love the unlovable, to confront the powerful, to welcome the outcast, to forgive the unforgivable — knowing that it would cost him everything. Where every prophet before him eventually faltered, Jesus held.
 
 That cost is the next chapter.
 
@@ -116,7 +114,7 @@ That cost is the next chapter.
 * The rich young man walked away because the cost was too high. What would you walk away from if Jesus asked you to give it up?
 * Jesus's sharpest words were for religious leaders, not sinners. What does that tell you about who is in the most danger of missing the point?
 
-[1]: https://www.esv.org/John+1/
+[1]: https://www.esv.org/Luke+4:18/
 [2]: https://www.esv.org/John+1:46/
 [3]: https://www.esv.org/Matthew+5:21-22/
 [4]: https://www.esv.org/Matthew+5:27-28/
