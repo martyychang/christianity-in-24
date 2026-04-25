@@ -20,12 +20,14 @@ God tells Samuel plainly: asking for a king is a rejection of God's leadership. 
 
 Saul is the first king. He starts well and ends in paranoia, jealousy, and disobedience. David follows — the shepherd boy, the giant-killer, the poet who wrote the Psalms. David is called "a man after God's own heart" ([1 Samuel 13:14][2]), and he is also an adulterer and a murderer. He saw Bathsheba, took her, and when she became pregnant, he arranged for her husband Uriah to be killed in battle ([2 Samuel 11][3]).
 
-The Bible does not flinch from this. The greatest king in Israel's history — the one from whose line Jesus would come — committed acts that should disqualify him from any position of moral authority. And the prophet Nathan walked into the palace and told him so.
+The Bible does not flinch from this. The greatest king in Israel's history — the one from whose line Jesus would come — committed acts that should disqualify him from any position of moral authority. And the prophet Nathan walked into the palace and made David condemn himself.
+
+Nathan didn't accuse David directly. He told him a story: a rich man with enormous flocks stole the one beloved lamb of a poor man — the only thing the poor man had, a lamb he'd raised like a daughter. David was furious. "The man who has done this deserves to die!" ([2 Samuel 12:5][4a]). Then Nathan delivered the line that echoes through every chapter of prophetic literature:
 
 > Nathan said to David, "You are the man!"
 — [2 Samuel 12:7 ESV][4]
 
-This is what prophets do. They tell the truth to power. Not predictions about the future — though some of their messages include that. Prophecy in the biblical sense is not fortune-telling. It is truth-telling. A prophet is someone who sees what everyone else sees and says what no one else will say.
+David had pronounced his own sentence. That is what prophets do. They tell the truth to power — and sometimes they make power tell the truth to itself. Not predictions about the future — though some of their messages include that. Prophecy in the biblical sense is not fortune-telling. It is truth-telling. A prophet is someone who sees what everyone else sees and says what no one else will say.
 
 Solomon follows David. He builds the Temple. He accumulates wealth, wives, and wisdom. And by the end of his reign, his heart has turned to other gods ([1 Kings 11:4][5]). The pattern holds. Even the wisest person in Israel's history couldn't sustain faithfulness across a lifetime.
 
@@ -59,7 +61,7 @@ Isaiah saw further than any of them. In the middle of warnings about judgment, h
 > But he was pierced for our transgressions; he was crushed for our iniquities; upon him was the chastisement that brought us peace, and with his wounds we are healed.
 — [Isaiah 53:5 ESV][9]
 
-Isaiah wrote this seven hundred years before Jesus. Whether you read it as divine revelation or as a poet articulating a hope so deep it became its own kind of prophecy, the words are there. Pierced. Crushed. Healed. The suffering servant — the one who would carry the weight that no amount of Law-keeping could lift.
+Isaiah wrote this seven hundred years before Jesus. Whether you read it as divine revelation or as a poet articulating a hope so deep it became its own kind of prophecy, the words are there. Pierced. Crushed. Healed. The suffering servant — not a workaround for human failure, but the ultimate demonstration of what faithfulness looks like when it costs everything. The final, blazing message from God: *this is who you are capable of becoming.*
 
 ## The exile
 
@@ -121,7 +123,8 @@ The Old Testament ends in waiting. The prophets have spoken. The silence has beg
 [1]: https://www.esv.org/1+Samuel+8/
 [2]: https://www.esv.org/1+Samuel+13:14/
 [3]: https://www.esv.org/2+Samuel+11/
-[4]: https://www.esv.org/2+Samuel+12/
+[4]: https://www.esv.org/2+Samuel+12:7/
+[4a]: https://www.esv.org/2+Samuel+12:5/
 [5]: https://www.esv.org/1+Kings+11/
 [6]: https://www.esv.org/Amos+5/
 [7]: https://www.esv.org/Hosea+3/
