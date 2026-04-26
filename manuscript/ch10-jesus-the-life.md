@@ -38,7 +38,7 @@ This is the transition from childhood to adulthood that the Law was always point
 
 External rules regulate behavior. Jesus is after something deeper — the internal orientation that produces the behavior in the first place. This is what Jeremiah meant by "the law written on hearts." Not a new set of rules. A new kind of person. Someone who doesn't need the rule because the character behind the rule has become part of who they are.
 
-This is the maturation metaphor from Hours 8 and 9 landing. The child who doesn't steal because the parent is watching has learned the rule. The adult who doesn't steal because taking what belongs to someone else is incompatible with who they are has internalized it. Jesus is describing the adult version of faithfulness.
+The child who doesn't steal because the parent is watching has learned the rule. The adult who doesn't steal because taking what belongs to someone else is incompatible with who they are has internalized it. Jesus is describing the adult version of faithfulness.
 
 ## How he lived
 
@@ -53,7 +53,7 @@ When a rich young man asked what he must do to inherit eternal life, Jesus told 
 > Jesus said to his disciples, "Truly, I say to you, only with difficulty will a rich person enter the kingdom of heaven."
 — [Matthew 19:23 ESV][8]
 
-This is the faith from Hour 5 made visible. Not belief. Not ritual. A direction. A willingness to orient your life around the mission even when the cost is everything comfortable about your current one.
+This is faith made visible. Not belief. Not ritual. A direction. A willingness to orient your life around the mission even when the cost is everything comfortable about your current one.
 
 ## The parables
 
@@ -63,12 +63,7 @@ The Good Samaritan ([Luke 10:25-37][9]). A man is beaten and left on the road. A
 
 The Prodigal Son ([Luke 15:11-32][10]). A son demands his inheritance, wastes it, and comes home broken. His father runs to meet him, embraces him, and throws a feast. The older son — the one who stayed, who followed the rules, who did everything right — is furious. The parable isn't about the lost son. It's about the older brother. It's about the person who kept the rules and missed the point.
 
-The Sheep and the Goats ([Matthew 25:31-46][11]). At the final judgment, God separates people not by what they believed, not by what church they attended, not by what creed they affirmed — but by what they did. "I was hungry and you gave me food. I was thirsty and you gave me drink. I was a stranger and you welcomed me."
-
-> "Truly, I say to you, as you did it to one of the least of these my brothers, you did it to me."
-— [Matthew 25:40 ESV][12]
-
-These parables are not illustrations. They are the mission statement. Love your neighbor. Welcome the outcast. Feed the hungry. Visit the prisoner. The test from Hour 1 — can humanity overcome its fears and vices to care for each other and the world? — Jesus answers it not with theory but with concrete, uncomfortable specifics.
+These parables are not illustrations. They are the mission statement. Love the person you've been taught to hate. Welcome the one who squandered everything and came home broken. Jesus answers the question of what faithfulness looks like not with theory but with concrete, uncomfortable specifics.
 
 ## Who he challenged
 
@@ -132,7 +127,6 @@ That cost is the next chapter.
 [9]: https://www.esv.org/Luke+10/
 [10]: https://www.esv.org/Luke+15/
 [11]: https://www.esv.org/Matthew+25/
-[12]: https://www.esv.org/Matthew+25:40/
 [13]: https://www.esv.org/Matthew+23/
 [14]: https://www.esv.org/John+18/
 [15]: https://www.esv.org/Matthew+26:53/
