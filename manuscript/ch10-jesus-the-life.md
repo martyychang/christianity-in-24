@@ -102,6 +102,13 @@ Jesus is the answer to the Old Testament's question.
 
 The Law showed what faithfulness looks like on paper. Jesus showed what it looks like in a life. The Law said don't murder. Jesus said don't even nurture the anger. The Law said love your neighbor. Jesus said your neighbor is the person across every boundary you've drawn — ethnic, religious, social, economic.
 
+John's gospel captured this with a single line:
+
+> And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son from the Father, full of grace and truth.
+— [John 1:14 ESV][16]
+
+Mainstream theology reads this as divine incarnation — God becoming human. But there is another way to hear it. The Word — God's message, the covenant, the mission that had been carved on stone, spoken through prophets, argued over by scholars — became flesh. It was lived. For the first time, someone didn't just teach the word or preach it or legislate it. Someone embodied it. The word on the tablet became a life.
+
 Every chapter of this book converges here. The mission from Hour 1 — humanity proving it can get this right. The sin from Hour 3 — choosing self over others. The faith from Hour 5 — a direction, not a moment. The Law from Hour 8 — childhood rules that Jesus translated into adult character. The prophets from Hour 9 — truth-tellers who pointed beyond themselves to someone who hadn't arrived yet.
 
 He arrived. A prophet with gifts no one else had — and the conviction to use them without flinching. Three years of showing what it looks like to choose the mission every single day — to love the unlovable, to confront the powerful, to welcome the outcast, to forgive the unforgivable — knowing that it would cost him everything. Where every prophet before him eventually faltered, Jesus held.
@@ -129,3 +136,4 @@ That cost is the next chapter.
 [13]: https://www.esv.org/Matthew+23/
 [14]: https://www.esv.org/John+18/
 [15]: https://www.esv.org/Matthew+26:53/
+[16]: https://www.esv.org/John+1:14/
