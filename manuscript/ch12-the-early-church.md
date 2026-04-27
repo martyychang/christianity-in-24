@@ -86,7 +86,7 @@ The Roman Empire did not welcome the early church. Christians were arrested, tor
 
 And the church grew.
 
-This is one of the most striking facts in human history. A movement with no political power, no military backing, no institutional infrastructure, no wealthy patrons — a movement that was actively being destroyed by the most powerful empire on earth — survived and expanded. Within three centuries, the emperor himself would convert.
+This is one of the most striking facts in human history. A movement with no political power, no military backing, no institutional infrastructure, no wealthy patrons — a movement that was actively being destroyed by the most powerful empire on earth — survived and expanded.
 
 How? Not through miracles — the Spirit's dramatic gifts were concentrated in the earliest years and faded as the church matured (Hour 6). Not through military conquest — Christians had no army. Not through intellectual superiority — most early Christians were uneducated.
 
