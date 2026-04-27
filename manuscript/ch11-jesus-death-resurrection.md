@@ -124,7 +124,7 @@ The resurrection is God's verdict on Jesus's life. Not a magic trick. Not a proo
 
 ## After
 
-Jesus appeared to his disciples over a period of forty days. He ate with them. He let Thomas touch the wounds in his hands. He reinstated Peter — the one who had denied him three times — with three questions: "Do you love me?" ([John 21:15-17][10]). Not "do you regret your failure?" Not "can you explain yourself?" Do you love me? Three denials, three restorations. The symmetry is deliberate.
+Jesus appeared to his disciples over a period of forty days. He ate with them. He let Thomas touch the wounds in his hands. He reinstated Peter — the one who had denied him three times — by asking him the same question three times: "Do you love me?" ([John 21:15-17][10]). No lecture. No demand for explanation. No penance. Just the question, repeated: do you love me? And each time Peter said yes, Jesus gave him work: "Feed my sheep." Three denials met with three chances to say yes — and three commissions to carry the mission forward.
 
 Then he gave them the mission:
 
