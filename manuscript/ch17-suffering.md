@@ -59,16 +59,18 @@ God answers. And the answer is not what anyone expects.
 
 God doesn't explain. God doesn't apologize. God doesn't reveal a hidden purpose. God asks questions — four chapters of them. Have you commanded the morning? Can you bind the stars? Do you know when the mountain goats give birth? Can you draw out Leviathan with a fishhook?
 
-The point isn't cruelty. The point is scale. Job is demanding that the architect of the universe explain a specific blueprint decision to someone who can't read blueprints. God's response is not "I have a plan you can't see." It's "the universe is vastly more complex than your frame of reference allows you to evaluate."
+The point isn't a hidden plan. The point is that the universe doesn't revolve around Job's story. The mountain goats give birth whether Job is watching or not. Leviathan swims whether Job is in pain or not. God set creation in motion — vast, autonomous, operating by its own laws — and it keeps running. Job's suffering is not part of a design. It is not a chapter in a cosmic narrative written about him. It is what happens when a world that runs on its own terms intersects with one person's life.
+
+That sounds harsh. It's actually liberating. If your suffering is part of a plan, then God chose it for you — and you're back to explaining why a good God deliberately inflicts pain. But if the world simply operates and your suffering is not orchestrated, then it's not punishment. It's not a lesson. It's not targeted. It just *is*. And what you do with it is yours to decide.
 
 Job's response:
 
 > "I had heard of you by the hearing of the ear, but now my eye sees you; therefore I despise myself, and repent in dust and ashes."
 — [Job 42:5-6 ESV][3]
 
-Job doesn't get an explanation. He gets perspective. And the book ends with God rebuking the three friends — the ones who were sure suffering had a tidy moral cause — and vindicating Job, the one who had the honesty to say, "This isn't fair, and I don't understand."
+Job doesn't get an explanation. He gets something harder: the realization that he was demanding the universe answer to him, when the universe was never about him. And the book ends with God rebuking the three friends — the ones who were sure suffering had a tidy moral cause — and vindicating Job, the one who had the honesty to say, "This isn't fair, and I don't understand."
 
-That's the Bible's answer to suffering: you won't always understand. Your friends who think they understand are probably wrong. And the demand for a neat explanation is itself a failure to grasp the scale of what you're asking about.
+That's the Bible's answer to suffering: the universe is not a story about you. Your friends who think they can explain your pain are probably wrong. And the honest response — "I don't understand, but I won't walk away" — is more faithful than any tidy explanation.
 
 ## Jesus and suffering
 
