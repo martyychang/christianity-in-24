@@ -5,11 +5,11 @@ A: Define "work." If you mean does God grant requests — read on. If you mean d
 
 ## Commentary
 
-Prayer is the most misunderstood practice in Christianity. Not because it's complicated — it's not — but because nearly everything the modern church teaches about it is built on an assumption this book rejects.
+Prayer is the most misunderstood practice in Christianity. Not because it's complicated — it's not — but because nearly everything the modern church teaches about it is built on a false assumption.
 
 The assumption: God is listening and might intervene.
 
-The framework of this book: God gave humanity everything we need — the example of Jesus, the record of Scripture, the capacity to reason — and stepped back. He is not adjusting outcomes. He is not granting requests. He is not running a cosmic customer service line with hold music and a callback option.
+But here is the reality: God gave humanity everything we need — the example of Jesus, the record of Scripture, the capacity to reason — and stepped back. He is not adjusting outcomes. He is not granting requests. He is not running a cosmic customer service line with hold music and a callback option.
 
 So what is prayer?
 
@@ -68,7 +68,7 @@ God didn't answer. The cup did not pass. Jesus went to the cross.
 
 This is the central prayer of Christianity, and it was not granted. If you build your understanding of prayer on the idea that God hears and responds to requests, you have to explain why he didn't respond to this one. Why would God ignore the prayer of the person who carried the mission most faithfully?
 
-The answer, in the framework of this book: God wasn't ignoring the prayer. The prayer was never about changing the outcome. The prayer was about Jesus being honest about what he faced, naming his fear, and then choosing the mission anyway.
+The answer: God wasn't ignoring the prayer. The prayer was never about changing the outcome. The prayer was about Jesus being honest about what he faced, naming his fear, and then choosing the mission anyway.
 
 "Not my will, but yours, be done." That's not resignation. That's realignment. Jesus walked into Gethsemane afraid. He walked out resolved. The prayer didn't change what happened next. It changed whether he was ready for it.
 
@@ -89,7 +89,7 @@ Prayer changes you. Specifically, it does three things:
 
 **It recalibrates your priorities.** The Lord's Prayer asks for daily bread — enough for today. Not enough for retirement. Not enough for the vacation house. Enough. When you pray for enough, you're confronting the gap between what you need and what you're chasing. Most of what consumes your energy — the promotion, the upgrade, the next milestone — has nothing to do with the mission. Prayer is the practice of remembering that.
 
-**It builds the muscle for hard choices.** Gethsemane wasn't the first time Jesus prayed. Luke records that he "would withdraw to desolate places and pray" ([Luke 5:16][4]) throughout his ministry. He prayed before choosing the twelve disciples ([Luke 6:12][5]). He prayed before feeding the five thousand ([Matthew 14:19][6]). The practice wasn't magic. It was preparation. By the time the hardest night of his life arrived, the habit of stopping, being honest, and realigning was already built. Gethsemane worked because every prayer before it had built the capacity to say, "Not my will, but yours."
+**It builds the muscle for hard choices.** Gethsemane wasn't the first time Jesus prayed. Luke records that Jesus "would withdraw to desolate places and pray" ([Luke 5:16][4]) throughout his ministry. He prayed before choosing the twelve disciples ([Luke 6:12][5]). He prayed before feeding the five thousand ([Matthew 14:19][6]). The practice wasn't magic. It was preparation. By the time the hardest night of his life arrived, the habit of stopping, being honest, and realigning was already built. Gethsemane worked because every prayer before it had built the capacity to say, "Not my will, but yours."
 
 ## What prayer is not
 
