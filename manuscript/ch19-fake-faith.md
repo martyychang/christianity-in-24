@@ -14,7 +14,7 @@ He never condemned the Roman centurion for being a pagan. He never rebuked the S
 
 Read that again. These are people who prophesied, cast out demons, and did mighty works — in Jesus's name. They had the vocabulary. They had the résumé. And they're told: I never knew you.
 
-If that doesn't unsettle you, you're not reading it carefully enough.
+That should unsettle you.
 
 ## The Pharisees
 
@@ -38,7 +38,7 @@ Jesus didn't criticize the Pharisees for believing too much. He criticized them 
 
 The prosperity gospel says the opposite: wealth is a sign of God's favor. Give generously — specifically to this ministry — and God will return it tenfold. Name it, claim it. Sow a seed. Your breakthrough is coming.
 
-This is the second form of fake faith: **transaction disguised as devotion.** You give in order to get. The relationship with God becomes an investment strategy with heavenly returns.
+This is the second form of fake faith: **transaction disguised as devotion.** You give in order to get. The relationship with God becomes an investment strategy with outsized returns.
 
 The prosperity gospel thrives because it tells people what they want to hear. You don't have to sacrifice. You don't have to confront your selfishness. You don't have to sit with uncomfortable questions about wealth and justice. You just have to give — and then expect a return.
 
@@ -47,7 +47,7 @@ Paul warned about exactly this:
 > "For the time is coming when people will not endure sound teaching, but having itching ears they will accumulate for themselves teachers to suit their own passions."
 — [2 Timothy 4:3 ESV][4]
 
-Teachers who suit their own passions. That's the prosperity gospel in one sentence. It doesn't challenge you — it flatters you. And any version of faith that never makes you uncomfortable is a version that isn't doing its job.
+Teachers who suit their own passions. That's the prosperity gospel in one sentence. It flatters you instead of challenging you. And a faith that leaves you perpetually comfortable has stopped doing its job.
 
 ## Cultural Christianity
 
@@ -73,7 +73,7 @@ Paul fought this battle constantly. Half of his letters are arguments against th
 > "For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of slavery."
 — [Galatians 5:1 ESV][6]
 
-The "yoke of slavery" is not sin — it's the Law used as a cage. The early church nearly split apart over whether Gentile converts had to follow Jewish dietary laws and be circumcised. Paul's answer was unequivocal: if you reduce faith to rule-following, you've missed the point entirely. The Law was a developmental stage (Hour 8). Clinging to it as the measure of faithfulness is like an adult insisting on training wheels.
+The "yoke of slavery" is not sin — it's the Law used as a cage. The early church nearly split apart over whether Gentile converts had to follow Jewish dietary laws and be circumcised. Paul's answer was unequivocal: if you reduce faith to rule-following, you've missed the point entirely. The Law was a developmental stage (Hour 8). Faith that clings to it as the final measure has stopped growing.
 
 ## The common thread
 
@@ -87,16 +87,15 @@ Real faith — the kind described across the last eighteen hours — demands tha
 
 How do you know if your faith is real? Not by your theology. Not by your church attendance. Not by how much you give or how often you pray or how many verses you've memorized.
 
-You know by the fruit.
+You know by what you've honestly faced.
 
-> "You will recognize them by their fruits. Are grapes gathered from thornbushes, or figs from thistles? So, every healthy tree bears good fruit, but the diseased tree bears bad fruit."
-— [Matthew 7:16-17 ESV][1]
+Have you genuinely considered the possibility that you're wrong — that God doesn't exist, that the mission is a human invention, that none of this matters? Have you sat with the doubt, the uncertainty, the absence of proof? And after all of that, have you still chosen to act?
 
-Fruit is visible. It's observable. It's the gap — or the lack of one — between what you say you believe and how you actually live. Do you love your neighbor, or do you love the idea of loving your neighbor? Do you forgive, or do you talk about the importance of forgiveness while holding grudges? Do you give sacrificially, or do you give conveniently?
+That's the test. Not whether your faith produces visible results that others can evaluate — visible results can be performed, and the Pharisees proved that. The test is internal: have you reckoned honestly with every reason to walk away and still chosen to stay?
 
-The Pharisees had impressive branches and no fruit. The prosperity gospel sells fertilizer. Cultural Christianity admires other people's orchards. Legalism measures the spacing between trees instead of checking whether anything is growing.
+This is not a one-time decision. It's the same discipline described in every chapter of Part III — the daily practice of prayer, the ongoing commitment to community, the repeated choice to forgive. Faith is a choice you make over and over, often without evidence that it's working, often without anyone watching, often against your own instincts. The Pharisees never faced this test — they had certainty, not faith. The prosperity gospel replaces it with a transaction. Cultural Christianity skips it. Legalism substitutes rules for honest reckoning.
 
-Fruit. That's the test. And it's a test you administer to yourself — because no one else can see the gap between your public faith and your private life as clearly as you can.
+Real faith is what remains when you've stripped away the performance, the incentives, the identity, and the rules — and you're standing in the uncertainty, choosing the mission anyway.
 
 ## Questions to sit with
 
