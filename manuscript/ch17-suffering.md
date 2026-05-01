@@ -1,7 +1,7 @@
 # Hour 17: Suffering
 
 Q: Why does God allow suffering?
-A: Because the test means nothing if it can't hurt.
+A: Pain gives the test meaning and makes the mission real.
 
 ## Commentary
 
@@ -30,7 +30,7 @@ Each has a kernel of truth and a mountain of problems.
 
 "God has a greater plan" is unfalsifiable — it explains everything and therefore nothing.
 
-"Satan causes suffering" contradicts the very dynamic described in Job, where Satan acts with God's explicit permission.
+"Satan causes suffering" raises a deeper problem: if Satan is the source of suffering, that challenges whether God can be trusted to triumph over evil at all. And in Job, Satan doesn't act independently — he acts with God's explicit permission, which puts the problem right back on God's desk.
 
 Here is what the first sixteen hours give us instead: God built a world with real consequences and real freedom, then stepped back. Suffering is not inflicted. It is not curated. It is not directed at specific people for specific reasons. It is what happens when a world runs on its own laws — physical laws, biological laws, and the consequences of free will.
 
@@ -115,7 +115,7 @@ None of this makes suffering good. Suffering is not a gift. It is not a blessing
 
 ## The hardest case
 
-Everything above meets its limit at one point: the suffering of the innocent. A child who has made no choices. An infant born into famine. A person with severe disabilities who never had the chance to carry the mission at all.
+None of those responses address the hardest case: the suffering of the innocent. A child who has made no choices. An infant born into famine. A person with severe disabilities who never had the chance to carry the mission at all.
 
 There is no theological answer that makes this okay. Any framework that claims to fully explain the suffering of the innocent is lying to you.
 
