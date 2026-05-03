@@ -53,8 +53,6 @@ Jesus used the word *Gehenna* ([Matthew 5:22][3], [Mark 9:43][4]) — a referenc
 
 What the framework of the first nineteen hours suggests: the mission is collective. Humanity succeeds or fails together. The promise of eternal life described in Hour 1 is conditional on collective success, not individual performance. If that's the structure, then hell as individual punishment for individual sins doesn't fit the framework. What fits is this: if humanity fails the mission, we all face the consequences — not as targeted retribution, but as the natural result of collective failure.
 
-This is less satisfying than a clear answer. That's the point. Anyone who describes the afterlife with architectural precision is building on speculation, not Scripture.
-
 ## What about science?
 
 Evolution is real. The earth is approximately 4.5 billion years old. The universe is roughly 13.8 billion years old. These are not matters of opinion — they're conclusions supported by converging evidence from geology, biology, physics, astronomy, and genetics.
