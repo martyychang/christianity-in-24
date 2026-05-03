@@ -58,9 +58,9 @@ The Bible is a mirror. It reflects what you bring to it. That's why reading it h
 
 ## The pattern
 
-Every one of these failures has the same structure: the mission was subordinated to power.
+Every one of these failures has the same structure: the mission was traded for power.
 
-Constantine subordinated it to political control. The Crusaders subordinated it to territorial ambition. The colonizers subordinated it to economic exploitation. The slaveholders subordinated it to the preservation of wealth. In each case, the language of the mission was preserved — God, Jesus, salvation, love — while the substance was gutted.
+Constantine traded it for political control. The Crusaders traded it for territorial ambition. The colonizers traded it for economic exploitation. The slaveholders traded it for the preservation of wealth. In each case, the language of the mission was preserved — God, Jesus, salvation, love — while the substance was gutted.
 
 Jesus anticipated this:
 
