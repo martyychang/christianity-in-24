@@ -92,7 +92,7 @@ Every hard question has the same thing underneath it: *can I trust this?*
 
 Can I trust a God who allows suffering? Can I trust a Bible with contradictions? Can I trust a faith that can't prove itself scientifically? Can I trust a religion that claims to be right when thousands of others make the same claim?
 
-The answer from Hour 19: real faith means sitting with these questions, honestly considering the possibility that the answer is no, and choosing to act anyway. Not because the doubts have been resolved, but because the mission — love God, love your neighbor, overcome your fears and vices, build something worth inheriting — is worth carrying even in the presence of doubt.
+The answer from Hour 19: real faith means sitting with these questions, honestly considering the possibility that the answer is no, and choosing to act anyway. Not because the doubts have been resolved, but because the mission — love God, love your neighbor, overcome your fears and vices — is worth carrying even in the presence of doubt.
 
 The questions don't go away. A faith that requires them to go away is fragile. A faith that carries them is the only kind that lasts.
 
