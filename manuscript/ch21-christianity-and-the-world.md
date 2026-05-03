@@ -67,7 +67,7 @@ Jesus anticipated this:
 > "Beware of false prophets, who come to you in sheep's clothing but inwardly are ravenous wolves. You will recognize them by their fruits."
 — [Matthew 7:15-16 ESV][3]
 
-The fruits of Christianity-as-institution include cathedrals, charitable hospitals, universities, abolitionism, civil rights, and countless individual acts of genuine love. They also include crusades, inquisitions, residential schools, slavery, and the ongoing entanglement of faith with political power. The question is not whether Christianity has done good — it obviously has. The question is whether the institution is the same thing as the mission. It isn't.
+The fruits of Christianity-as-institution include cathedrals, charitable hospitals, universities, abolitionism, civil rights, and countless individual acts of genuine love. They also include crusades, inquisitions, forced assimilation, slavery, and the ongoing entanglement of faith with political power. The question is not whether Christianity has done good — it obviously has. The question is whether the institution is the same thing as the mission. It isn't.
 
 ## Christianity and politics today
 
