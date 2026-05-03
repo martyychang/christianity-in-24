@@ -11,18 +11,27 @@ That framework answers a lot. But it doesn't answer everything. This chapter dea
 
 ## What about other religions?
 
-There are roughly 4,200 religions in the world. Christianity claims about 2.4 billion adherents — the largest single group, but still less than a third of humanity. Islam, Hinduism, Buddhism, Judaism, and thousands of smaller traditions each offer their own account of God, meaning, and the human condition. Some of those accounts overlap with Christianity. Some contradict it directly.
+Start with what we know.
 
-The standard Christian answer is exclusivism: Jesus is the only way, and everyone else is wrong. The verse usually cited:
+God created humanity. All of it. Not a chosen race with everyone else as an afterthought. Not a preferred ethnicity with the rest playing supporting roles. Every person on earth — every nation, every culture, every language — comes from the same creator with the same intent. The mission from Hour 1 was given to humanity, not to a subset.
+
+Peter had to learn this the hard way. He grew up believing God's covenant was for Israel. Then God gave him a vision and sent him to Cornelius, a Roman centurion — a gentile, an outsider. Peter walked into that house and said:
+
+> "Truly I understand that God shows no partiality, but in every nation anyone who fears him and does what is right is acceptable to him."
+— [Acts 10:34-35 ESV][1]
+
+In every nation. Anyone who does what is right. Peter didn't say "anyone who carries the Christian label." He said anyone who fears God and does what is right. That's the foundation.
+
+From that foundation, the question of other religions looks different. There are roughly 4,200 religions in the world. Christianity is the largest, but it still represents less than a third of humanity. The standard Christian answer is exclusivism: Jesus is the only way, and everyone else is wrong. The verse usually cited:
 
 > "I am the way, and the truth, and the life. No one comes to the Father except through me."
-— [John 14:6 ESV][1]
+— [John 14:6 ESV][8]
 
 Read in context, Jesus is speaking to his disciples at the Last Supper — people who already follow him — about where he's going and how they can follow. He's describing the mission path, not issuing a cosmic immigration policy.
 
-Here is the honest position: we don't know what God does with people who never encountered Christianity, who were born into other traditions, or who examined the evidence and reached different conclusions in good faith. Anyone who claims certainty about the eternal fate of billions of people they've never met is claiming knowledge they don't have.
+If God created everyone without partiality, then the mission was always meant for everyone. A Buddhist practicing compassion, a Muslim giving zakat, a secular humanist building clean water systems — each is contributing to the same mission, whether they use the same language or not. The specific vehicle matters less than whether someone is actually carrying the mission. The question is not what label you wear. The question is whether you're doing what is right.
 
-What can be said is this: the mission described in Hour 1 — overcome our fears and vices to sustainably manage the earth — is not uniquely Christian. A Buddhist practicing compassion, a Muslim giving zakat, a secular humanist building clean water systems — each is contributing to the same mission, whether they use the same language or not. The question is not whether someone carries the right label. The question is whether they're carrying the mission.
+What we don't know — and should be honest about not knowing — is the specifics of the afterlife: who gets in, who doesn't, and by what exact mechanism. Anyone who claims certainty about the eternal fate of billions of people they've never met is claiming knowledge they don't have. But God's original intent is clear: everyone, no favorites.
 
 ## What about the violence in the Old Testament?
 
@@ -95,10 +104,11 @@ The questions don't go away. A faith that requires them to go away is fragile. A
 * Has a question ever strengthened your faith rather than weakened it? What made the difference?
 * Is your faith strong enough to hold doubt without collapsing — or does it depend on certainty?
 
-[1]: https://www.esv.org/John+14/
+[1]: https://www.esv.org/Acts+10/
 [2]: https://www.esv.org/Deuteronomy+20/
 [3]: https://www.esv.org/Matthew+5/
 [4]: https://www.esv.org/Mark+9/
 [5]: https://www.esv.org/Psalm+139/
 [6]: https://www.esv.org/Romans+3/
 [7]: https://www.esv.org/James+2/
+[8]: https://www.esv.org/John+14/
