@@ -71,24 +71,6 @@ The book ends not with destruction but with restoration:
 
 That's the hope Revelation offers. Not escape from the world, but the renewal of it. A vision of what the mission is building toward — a world where suffering, death, and injustice have been overcome by the people who carried the mission faithfully.
 
-## Judgment imagery
-
-Several passages use language of judgment and separation. The most vivid is the Sheep and the Goats:
-
-> "When the Son of Man comes in his glory... he will separate people one from another as a shepherd separates the sheep from the goats."
-— [Matthew 25:31-32 ESV][5]
-
-The sheep — those who are welcomed — are identified not by their theology, not by their church attendance, not by their doctrinal correctness. They are identified by what they did:
-
-> "For I was hungry and you gave me food, I was thirsty and you gave me drink, I was a stranger and you welcomed me, I was naked and you clothed me, I was sick and you visited me, I was in prison and you came to me."
-— [Matthew 25:35-36 ESV][5]
-
-And the criterion that stings: "As you did it to one of the least of these my brothers, you did it to me" ([Matthew 25:40][5]).
-
-The goats — those who are turned away — are not atheists or pagans or members of the wrong religion. They are people who saw need and did nothing. They had the opportunity to love their neighbor and chose comfort instead.
-
-This is the mission in miniature. The judgment is not about what you believed. It is about what you did — specifically, whether you loved the person in front of you who needed love. Read alongside the wheat and the chaff ([Matthew 3:12][6]), the narrow gate ([Matthew 7:13-14][6]), and the talents ([Matthew 25:14-30][5]), the picture is consistent: the measure is not belief but faithfulness. Not what you said but what you did.
-
 ## The forest, not the trees
 
 You will encounter passages that confuse you. Genealogies that seem pointless. Laws that seem barbaric. Prophecies that seem contradictory. Details that scholars have debated for centuries without resolution.
@@ -101,11 +83,9 @@ When a passage doesn't make sense, set it aside and keep reading. The mission �
 
 * Have you ever felt intimidated by the Bible — like you needed an expert to understand it? What would change if you read it simply as the story of humanity growing up?
 * Pick any passage that has confused you. Ask: where in humanity's growth does this belong? Does that lens clarify it?
-* If the Sheep and the Goats defines judgment by action rather than belief, how does your life measure up — not by what you believe, but by what you've done for "the least of these"?
+* What would change about how you read the Bible if you assumed it was written for you to understand — not for scholars to decode?
 
 [1]: https://www.esv.org/Proverbs+22/
 [2]: https://www.esv.org/Psalm+23/
 [3]: https://www.esv.org/Revelation+13/
 [4]: https://www.esv.org/Revelation+21/
-[5]: https://www.esv.org/Matthew+25/
-[6]: https://www.esv.org/Matthew+3/
