@@ -63,21 +63,35 @@ Christians hold at least three major positions on what happens to those who pers
 
 **Universal restoration (apokatastasis)** — Eventually, all people are reconciled to God. The "fire" of judgment is purifying, not punitive. God's love wins in the end because God does not give up. Early church fathers including Origen and Gregory of Nyssa held this view. Passages like "God desires all people to be saved" ([1 Timothy 2:4][7]) and "every knee shall bow" ([Philippians 2:10-11][8]) anchor it.
 
-Each view has biblical support. Each has serious theological defenders across two thousand years. The question is: which one is most consistent with the story?
+Each view has biblical support. Each has serious theological defenders across two thousand years. We believe universal restoration — and here is why.
 
-## What "humanity growing up" implies
+## Consider the people
 
-If the Bible tells the story of humanity maturing — growing from children needing rules into adults carrying the mission freely — then what does that imply about the afterlife?
+Before the theology, consider the lives.
 
-A parent who tortures a child forever for failing to grow up is not a parent. That is a tyrant. Eternal conscious torment, taken at face value, makes God worse than any human parent. It makes the mission coercive rather than invitational: "Love me or burn." That's not a relationship. It's a hostage situation.
+A child born on the autism spectrum who never experiences what society calls a "normal life." They may never articulate a creed, never pray a sinner's prayer, never sit in a pew. They experience the world differently. They love differently. Are they condemned for that?
 
-Annihilationism is coherent — it says the alternative to growth is simply to stop existing. No torture, just an end. But it also implies that God gives up. That some people are ultimately lost, and God accepts that loss.
+A baby who dies in the NICU — hours old, days old. Never spoke. Never chose anything. What theology accounts for that life? What kind of God creates a soul only to discard it because it never had the chance to "accept" anything?
 
-Universal restoration says: God is patient enough to wait. The "fire" of judgment is the same fire that refines gold — it burns away what is false, not the person. Growing up may take longer for some than others. The door remains open.
+A soldier sent to war at eighteen — told to die for their country, when countries are human fabrications designed to separate humanity and maintain self-serving power structures. They didn't choose the war. They were handed a rifle and told it was noble. If they die carrying out orders, are they judged for the killing? If they survive and carry the trauma forever, where is justice for them?
 
-This reading does not eliminate accountability. A child who refuses to mature still faces consequences — lost opportunities, broken relationships, the pain of stagnation. But the parent does not stop being a parent. The invitation does not expire.
+Mark Stroman walked into a Dallas convenience store after 9/11 and murdered Vasudev Patel — an immigrant from India who had nothing to do with the attacks. Dylann Roof sat in a Bible study at Mother Emanuel AME Church for an hour, prayed with the congregation, then murdered nine people because of the color of their skin. These men created incomprehensible pain. Their victims' families carry wounds that will never fully heal.
 
-You do not need to pick a position right now. But you should know that the version of hell preached most loudly — eternal torture for finite sins, decided in a single lifetime — is not the only option. It is not even the oldest option. And it is the option least consistent with a God whose defining characteristic, according to the Bible itself, is love ([1 John 4:8][9]).
+What does a loving and just God do with all of these people?
+
+## What we believe
+
+Eternal conscious torment says: the baby is in limbo, the soldier is judged, the murderer burns forever, and the autistic child who never prayed the right prayer is simply... lost. This makes God a bureaucrat — sorting paperwork, checking boxes, discarding anyone whose file is incomplete. A parent who tortures a child forever for failing to grow up is not a parent. That is a tyrant. "Love me or burn" is not a relationship. It is a hostage situation.
+
+Annihilationism says: those who don't make it simply cease to exist. No torture, just an end. But this implies God gives up. That some people — including babies, including those who never had a real chance — are ultimately lost, and God accepts that loss. A parent who shrugs and says "I tried" is not the God described in the parable of the lost sheep, who leaves the ninety-nine to find the one ([Luke 15:4][4]).
+
+Universal restoration says: God is patient enough to wait. The "fire" of judgment is the same fire that refines gold — it burns away what is false, not the person. The baby is not lost. The autistic child is not deficient. The soldier is not condemned for someone else's war. And yes — even Stroman, even Roof — face not annihilation but reckoning. They face the full weight of what they did, fully understood, fully felt. That is not mercy without justice. That is justice that leads somewhere.
+
+Growing up may take longer for some than others. The door remains open.
+
+This does not eliminate accountability. A child who refuses to mature still faces consequences — lost opportunities, broken relationships, the pain of stagnation. The murderer faces the enormity of lives destroyed. But the parent does not stop being a parent. The invitation does not expire. The God who "desires all people to be saved" ([1 Timothy 2:4][7]) does not desire it passively.
+
+The version of hell preached most loudly — eternal torture for finite sins, decided in a single lifetime — is not the oldest Christian position. Origen and Gregory of Nyssa held universal restoration in the early centuries. And it is the position most consistent with a God whose defining characteristic, according to the Bible itself, is love ([1 John 4:8][9]).
 
 ## Resurrection, not escape
 
@@ -95,7 +109,7 @@ Death is real. Loss is real. But the story does not end with loss. It ends with 
 ## Questions to sit with
 
 * If judgment is measured by how you loved the vulnerable — not by what you believed about God — how does that change your sense of urgency about your daily life?
-* Which view of the afterlife do you instinctively hold? Is that because you've studied it, or because it's what you were taught? Are you willing to consider the alternatives honestly?
+* Think of someone you consider irredeemable. Now ask: does God agree with you? What would it mean if restoration were possible even for them?
 * If "goat" is a posture you can change rather than a category you're born into, what posture are you choosing today?
 
 [1]: https://www.esv.org/Psalm+115/
